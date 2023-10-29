@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Princesspdee
 - 👀 I’m interested in discovering new things and also coding
-- 🌱 I’m currently learning with SheCodes and also FreeCodeAcademy
+- 🌱 I’m currently learning with SheCodes plus
 - 💞️ I’m looking to collaborate on everything I could possible meet, that inspires me.
 - 📫 How to reach me: you can reach me through Linkedin and also on my email address.
 
